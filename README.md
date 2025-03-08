@@ -1,4 +1,4 @@
-### Learning every day, all day 👌🏼
+### Learning every day 💪🏼
 
 <!--
 **alexmontagna/alexmontagna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
